@@ -1,16 +1,14 @@
-## Hi there 👋
+<p align="center">
+  <h4 align="center"
+    </a>
 
-<!--
-**Zoro-101/zoro-101** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![Image](https://github.com/user-attachments/assets/b108e754-9f3b-4119-be02-29f09f875498)
 
-Here are some ideas to get you started:
+<p></p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+byi:
+if this account is linked instead of my main pls iwec. i may come off as blunt but it's not my intention to be rude.
+pls int i need friends,,,
+
+<p></p>
+dni: proshippers + basic dni stuff
