@@ -12,3 +12,5 @@ pls int i need friends,,,
 
 <p></p>
 dni: proshippers + basic dni stuff
+
+[pfp credit](https://www.pinterest.com/pin/195625177559163847/)
